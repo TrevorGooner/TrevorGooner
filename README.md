@@ -1,3 +1,7 @@
+<img width="541" height="461" alt="Screenshot_2026-01-06-05-28-54-323_com vblast flipaclip-edit-removebg-preview" src="https://github.com/user-attachments/assets/6b39175e-a2ba-466c-83fe-740a7ca6986f" />
+
+
+
 𝖬𝖠𝖨𝖭 𝖨𝖭𝖳𝖤𝖱𝖤𝖲𝖳𝖲 : 
 
 ★ 𝙶𝚃𝙰 𝚅 , 𝙷𝙾𝚄𝚂𝙴 𝙼𝙳 , 𝚃𝚆𝙳 
@@ -8,7 +12,10 @@
 
 ✮⋆˙ STRANGERS AND FREAKS INT !! i love making new friends but be respectful. PEDOS, PRO SHIPS, DARK dni. 
 
-☆ c + h / rp welcomed! 
+☆ c + h / rp welcomed! <img width="502" height="497" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
+
+
+<img width="511" height="488" alt="Screenshot_2026-01-06-19-20-20-251_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/00a4efdb-b5db-44ea-8d17-c51e7a49c3b4" />
 
 <!--
 **TrevorGooner/TrevorGooner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
