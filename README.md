@@ -1,4 +1,4 @@
-<img width="541" height="461" alt="Screenshot_2026-01-06-05-28-54-323_com vblast flipaclip-edit-removebg-preview" src="https://github.com/user-attachments/assets/6b39175e-a2ba-466c-83fe-740a7ca6986f" />
+<img width="350" height="350" alt="Screenshot_2026-01-06-05-28-54-323_com vblast flipaclip-edit-removebg-preview" src="https://github.com/user-attachments/assets/6b39175e-a2ba-466c-83fe-740a7ca6986f" />
 
 
 
