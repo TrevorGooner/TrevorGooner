@@ -12,7 +12,7 @@
 
 ✮⋆˙ STRANGERS AND FREAKS INT !! i love making new friends but be respectful. PEDOS, PRO SHIPS, DARK dni. 
 
-☆ c + h / rp welcomed! <img width="10" height="10" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
+☆ c + h / rp welcomed! <img width="40" height="40" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
 
 
 
