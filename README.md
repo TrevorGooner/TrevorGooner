@@ -15,7 +15,7 @@
 ☆ c + h / rp welcomed! <img width="502" height="497" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
 
 
-<img width="511" height="488" alt="Screenshot_2026-01-06-19-20-20-251_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/00a4efdb-b5db-44ea-8d17-c51e7a49c3b4" />
+
 
 <!--
 **TrevorGooner/TrevorGooner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
